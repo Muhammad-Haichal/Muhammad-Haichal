@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on company 
 - 📫 How to reach me:
 -     facebook:
--     instagram:
+-     instagram: https://www.instagram.com/mas_haichal?igsh=YzljYTk1ODg3Zg==
 - 😄 Pronouns: Mas Haikal
 - ⚡ Fun fact: never get bored of learning
 
